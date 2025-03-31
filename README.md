@@ -1,0 +1,2 @@
+# Spotify-hezu-jiaocheng
+最新Spotify合租指南：2025年最靠谱的Spotify拼车平台推荐（每月常见13元），本文还会详细解答在购买Spotify共享账号过程中可能遇到的各种问题，帮助您轻松开启高品质的音乐之旅。
